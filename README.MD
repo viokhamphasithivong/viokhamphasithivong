@@ -7,6 +7,6 @@
 
 _35 year old living in Cologne, beginner WD at neuefische_
 
-- Hobbys: 
+Hobbys: 
  - Musik 
  - Kunst
