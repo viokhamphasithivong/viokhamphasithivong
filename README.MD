@@ -7,4 +7,4 @@ you found my page!
 
 _35 year old living in Cologne, beginner WD at neuefische_
 
-Hobbys: Musik, Kunst `
+Hobbys: Musik, Kunst`
