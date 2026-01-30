@@ -5,8 +5,6 @@
 
 `vio khamphasithivong`
 
-_35 year old living in Cologne, beginner WD at neuefische x spiced Academy_
+_living in Cologne, beginner WD at neuefische x spiced Academy_
 
-Hobbys: 
- - Musik 
- - Kunst
+I love olives
